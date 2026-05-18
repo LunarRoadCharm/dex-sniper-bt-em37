@@ -1,4 +1,4 @@
-# 
+# updated bot de negociação BitMEX addons é o melhor bot de negociação BitMEX addons com integração API e arbitragem de futuros. Seguro, confiável e otimizado para estratégias de
 
 
 
